@@ -38,5 +38,5 @@
 ### Modo de Preparo
 
 1. Bater as gemas, o açúcar e a manteiga até ficar uma massa homogênea. 
-2. ...
+2. Dê asas à imaginação :slightly_smiling_face:
 
